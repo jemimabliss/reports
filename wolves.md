@@ -17,3 +17,6 @@ wolfs can live anywhere for example pittsburgh but in the forest
 
 wolvs only come out there cave when they want to go outside
 
+Here is a picture of a wolf that I love:
+
+[http://interactive.wxxi.org/files/images/highlights/white_falcon_5.jpg "Wolf!"]
